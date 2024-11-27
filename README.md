@@ -1,5 +1,4 @@
-https://56cg3.com/assets/img/56cg/logo.png?_v=2024111605
-#👽52黑料☠️最新地址
+# 👽52黑料☠️最新地址
 网页版最新地址: https://hicg01.com
 
 网页版永久地址（需要VPN） https://52hl.me

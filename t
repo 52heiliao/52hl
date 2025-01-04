@@ -1,1 +1,1 @@
-[afaf](fafa)
+[afaf](http://www.baidu.com)

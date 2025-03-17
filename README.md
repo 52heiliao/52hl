@@ -7,8 +7,8 @@
 
 ✅ 最新地址1：https://52hl.xyz
 
-✅ 最新地址2：https://52hl11.com
+✅ 最新地址2：https://hl03.hlyua.com
 
-✅ 最新地址3：https://52hl5.com
+✅ 最新地址3：https://hl02.hlyua.com
 
-✅ 最新地址4：https://52hl7.com
+✅ 最新地址4：https://hl01.hlyua.com
